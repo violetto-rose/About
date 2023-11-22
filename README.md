@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Violetto-rose
+- 👀 I’m interested in app dev and custom personalization softwares
+- 🌱 I’m currently learning C, Java, Python
+- 📫 How to reach me https://linkt.ee/manjumadhav.va or violetto_xo
