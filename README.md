@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @Violetto-rose
 - 👀 I’m interested in app dev and custom personalization softwares
 - 🌱 I’m currently learning C, Java, Python
-- 📫 How to reach me : Through <a href="https://linkt.ee/manjumadhav.va">Manju Madhav</a> or <a href="https://linkt.ee/violetto_xo">Violetto</a>
+- 📫 How to reach me : Through <a href="https://linktr.ee/manjumadhav.va">Manju Madhav</a> or <a href="https://linktr.ee/violetto_xo">Violetto</a>
